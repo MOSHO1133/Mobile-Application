@@ -1,1 +1,1 @@
-This application is developed by Muhammad Shees eys adada 
+Muhammad Shees
